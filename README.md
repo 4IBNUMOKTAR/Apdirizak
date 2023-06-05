@@ -1,0 +1,2 @@
+# Apdirizak
+4IBNUMOKTAR
